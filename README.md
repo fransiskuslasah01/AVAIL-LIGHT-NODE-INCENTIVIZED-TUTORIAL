@@ -1,4 +1,3 @@
-![image](https://github.com/fransiskuslasah01/AVAIL-LIGHT-NODE-INCENTIVIZED-TUTORIAL/assets/119425934/846eb176-9d78-44c8-8c2f-d0d5a7d73f1d)
 <p style="font-size:14px" align="right">
 <a href="https://t.me/bangpateng_airdrop" target="_blank">Join our telegram <img src="https://user-images.githubusercontent.com/50621007/183283867-56b4d69f-bc6e-4939-b00a-72aa019d1aea.png" width="30"/></a>
 
